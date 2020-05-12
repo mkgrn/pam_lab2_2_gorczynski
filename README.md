@@ -1,0 +1,1 @@
+Nagranie z działania programu: https://drive.google.com/open?id=1SzdfWr9N-xac4xc8wK3MMQe8isMjMPBt
